@@ -11,3 +11,6 @@
   - Email: Guibson5555@gmail.com
 
  ### EM BREVE IREI CRIAR UM CANAL NO YOUTUBE DE COMO EU ESTUDO PROGRAMAÇÂO!!
+
+
+https://tenor.com/ryPhvpzjVoG.gif
