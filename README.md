@@ -13,4 +13,4 @@
  ### EM BREVE IREI CRIAR UM CANAL NO YOUTUBE DE COMO EU ESTUDO PROGRAMAÇÂO!!
 
 
-https://tenor.com/ryPhvpzjVoG.gif
+![](https://media1.tenor.com/m/_nFOWznFpLsAAAAd/pain-sad.gif)
